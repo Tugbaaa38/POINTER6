@@ -1,0 +1,2 @@
+# POINTER6
+PointerlaTakas
